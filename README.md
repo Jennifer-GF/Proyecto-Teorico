@@ -1,2 +1,2 @@
 # Proyecto-Teorico
-Para sobrevivir el semestre
+Para ser feliz durante semestre
